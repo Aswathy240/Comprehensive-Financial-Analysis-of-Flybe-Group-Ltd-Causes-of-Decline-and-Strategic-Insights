@@ -1,0 +1,2 @@
+# Comprehensive-Financial-Analysis-of-Flybe-Group-Ltd-Causes-of-Decline-and-Strategic-Insights
+The report examines Flybe Group Ltd's financial collapse from 1978 to 2020, indicating financial instability, an overreliance on domestic markets, deteriorating asset values, and low solvency ratios. Diversifying revenue streams, conducting financial monitoring, and developing adaptable strategies are among the recommended actions.
